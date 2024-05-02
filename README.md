@@ -1,1 +1,1 @@
-Hello, I'am Dimas form Medan
+Hello, I'am Dimas from Medan
